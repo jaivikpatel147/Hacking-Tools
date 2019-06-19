@@ -1,5 +1,5 @@
 # :fire: Hacking Tools [Professional & Full Option] :fire:
-<b>:man_technologist:Coded By .::Shayan::.</b></br>
+<b>:man_technologist:Coded By .::JAIVIK PATEL::.</b></br>
 <b>:comet:This Script Makes Your Hacking Work Easier!</b></br>
 <b>:pray:Thank's For Using Our Script :)</b></br></br>
 
@@ -23,8 +23,7 @@
 <a href="https://Aparat.com/v/oHNXn">Aparat.com/v/oHNXn</a></br></br>
 
 <b>:point_down: Our Channels: :point_down:</b><br/>
-<i>Telegram Channel : </i><b><a href="https://Yon.ir/xcehr">Yon.ir/xcehr</a></b><br/>
-<i>Aparat Channel: </i><b><a href="https://Yon.ir/xNuvz">Yon.ir/xNuvz</a></b><br/>
-<i>Github Channel: </i><b><a href="https://Yon.ir/mptyD">Yon.ir/mptyD</a></b><br/>
-<i>Youtube Channel: </i><b><a href="https://Yon.ir/Qt3ZK">Yon.ir/Qt3ZK</a></b><br/>
+<i>twitter: </i><b><a href="https://twitter.com/jaivikpatel47">https://twitter.com/jaivikpatel47</a></b><br/>
+<i>Facebook: </i><b><a href="https://www.facebook.com/hackerisinside">https://www.facebook.com/hackerisinside</a></b><br/>
+<i>Github Channel: </i><b><a href="https://github.com/jaivikpatel147">https://github.com/jaivikpatel147</a></b><br/>
 <b>Follow Us</b>
