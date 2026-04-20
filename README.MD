@@ -19,8 +19,6 @@
 ## :point_down: Learning Video From Youtube: :point_down:
 <a href="https://www.youtube.com/watch?v=8jT-JMWiQyA">Youtube.com/watch?v=8jT-JMWiQyA</a></br></br>
 
-## :point_down: Learning Video From Aparat: :point_down:
-<a href="https://Aparat.com/v/oHNXn">Aparat.com/v/oHNXn</a></br></br>
 
 <b>:point_down: Our Channels: :point_down:</b><br/>
 <i>twitter: </i><b><a href="https://twitter.com/jaivikpatel47">https://twitter.com/jaivikpatel47</a></b><br/>
